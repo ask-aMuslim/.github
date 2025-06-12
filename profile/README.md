@@ -1,0 +1,1 @@
+We are a group of Muslims based in Columbus, OH, USA. We help people learn about Islam from the best source – actual practicing Muslims. We do dawah training, print dawah materials as well as run the Food Pantry.
